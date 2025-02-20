@@ -1,2 +1,1 @@
-# isolir-internet
-# harap membayarkan tagihan anda agar internet kembali normal
+# isolir-internet harap segara melakukan pembayaran agar internet anda kembali normal
